@@ -1,3 +1,3 @@
 # Online-Policing
 
-“You have the right to remain silent. Anything you say can and will be used against you in a court of law. You have the right to an attorney. If you cannot afford an attorney, one will be provided for you. Do you understand the rights I have just read to you? With these rights in mind, do you wish to speak to me?”
+> “You have  right to remain silent. Aything you say  and wi be used aou in a court of law. You have thright to an attot afford an attorney, oneyou. Do  understand the rights I ha just read to you? With these  in mind, do you wish to s
