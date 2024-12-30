@@ -1,6 +1,8 @@
 
 ^^^^^^
+
 [x = x + 1](https://chatgpt.com/share/67714485-4cfc-8012-8757-fd962da18f64?fbclid=IwY2xjawHe9_hleHRuA2FlbQIxMQABHUAVtO8-qTJKq13vkXJqr4eMcehwN_y4OnkhACCoiEOTB8HFrXXb_W4UFg_aem_SYuMnTH6HzCJ-tg9ZXKpWw)
+
 ^^^^^^
 Blizzard cast a confundo spell in Warcraft3 on me.
 
