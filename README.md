@@ -1,4 +1,4 @@
-
+[x = x + 1](https://chatgpt.com/share/67714485-4cfc-8012-8757-fd962da18f64?fbclid=IwY2xjawHe9_hleHRuA2FlbQIxMQABHUAVtO8-qTJKq13vkXJqr4eMcehwN_y4OnkhACCoiEOTB8HFrXXb_W4UFg_aem_SYuMnTH6HzCJ-tg9ZXKpWw)
 
 law? [https://www.youtube.com/watch?v=20xQJbHAGr8](https://youtu.be/20xQJbHAGr8?si=wXHVoe3migGAoUoY) : https://www.youtube.com/watch?v=Vlxiv0JA8aU
 
